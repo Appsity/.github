@@ -1,1 +1,1 @@
-[www.appsity.cf]
+www.appsity.cf
